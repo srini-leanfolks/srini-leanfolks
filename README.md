@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @srini-leanfolks
+- 👋 Hi, I’m srinivas
 - 👀 I’m interested in learning new things
 - 📫 How to reach me srinivasan.m@leanfolks.com
 
